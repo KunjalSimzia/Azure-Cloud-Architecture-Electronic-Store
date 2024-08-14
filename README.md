@@ -3,4 +3,6 @@ The Electronic Store considering Best Buy as a business, Cloud Architecture is a
 
 LinkedIn : www.linkedin.com/in/kunjalsimzia1107
 
-![CloudArchitect (2)](https://github.com/user-attachments/assets/f0032db7-3896-4ea4-a218-6a9ada209df5)
+![CloudArchitect](https://github.com/user-attachments/assets/134618f8-6780-4e71-93de-b5350fce42a7)
+
+
